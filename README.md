@@ -17,3 +17,5 @@
 Download : https://gofile.io/d/RYmDSB
 
 Made by Hefirox
+
+https://www.virustotal.com/gui/url/8b122525dfa285c89d34e5ed748b188ff0dfa71b0f063452334970519e146899?nocache=1
